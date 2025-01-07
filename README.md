@@ -2,4 +2,5 @@
 ### MSV: 22810310306
 ## Ket qua
 
-![btap2.2](https://github.com/user-attachments/assets/4f03c6ce-5e4c-45b4-a22d-26c89c7f73d0)
+![z6204540115151_d05a4173442697a8dc4f018c10cef658](https://github.com/user-attachments/assets/03722fea-db52-4c90-a795-b62704da77cd)
+
