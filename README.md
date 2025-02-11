@@ -15,5 +15,10 @@ Bài tập 02.2: Flatlist
 ![z6204540115151_d05a4173442697a8dc4f018c10cef658](https://github.com/user-attachments/assets/b8540ee6-e1c5-49a8-909c-c7a77384e049)
 
 
+Bài tập: Sử dụng State
+![475748911_969673725116173_5772007879049704161_n](https://github.com/user-attachments/assets/7b9f213c-8181-47e2-92ec-1ebf44fef0be)
+
+
+
 
 
