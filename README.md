@@ -19,6 +19,10 @@ Bài tập: Sử dụng State
 ![475748911_969673725116173_5772007879049704161_n](https://github.com/user-attachments/assets/7b9f213c-8181-47e2-92ec-1ebf44fef0be)
 
 
+Bài tập: 18/2
+![btap](https://github.com/user-attachments/assets/63e124c2-a448-4881-9d30-f744875d8233)
+
+
 
 
 
