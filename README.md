@@ -23,6 +23,13 @@ Bài tập: 18/2
 ![btap](https://github.com/user-attachments/assets/63e124c2-a448-4881-9d30-f744875d8233)
 
 
+Bài tập 3/3
+![ad95bfb8-ba4e-4c88-b719-1e33499a3af5](https://github.com/user-attachments/assets/7aa7a720-09d2-4f71-8ca2-813c50f65a8a)
+
+![e3aa13b9-57f4-40af-b85d-4be93e0b6a30](https://github.com/user-attachments/assets/7c7c5ead-5aed-4ded-8afd-093087f2b39b)
+
+
+
 
 
 
